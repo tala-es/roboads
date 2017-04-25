@@ -1,5 +1,5 @@
 
-<br><a href="https://telegram.me/Milad0S">@Milad0S</a>
+<br><a href="https://telegram.me/talaes">@talaes</a>
 
 <h3 align="right"> <strong> نصب و راه‌اندازی</strong> 🚀
 </h3>
@@ -258,4 +258,4 @@
 <h6 dir="rtl">اساس کار تبلیغ‌گر تشخیص لینک و عضویت در هر گروه‌ها و پیروی از دستورات تعیین شده است.</h6>
 <br>
 
-<br><a href="https://telegram.me/Milad0S">@Milad0S</a>
+<br><a href="https://telegram.me/talaes">@talaes</a>
